@@ -1,0 +1,2 @@
+# ingilizcekelimelerim
+esiladurucoskun
